@@ -1,4 +1,4 @@
-# EFCloud机场不能用了？EFCloud跑路了？EFCloud机场无法使用，推荐替代 – DOVE加速器
+# EFCloud机场不能用了？EFCloud跑路了？EFCloud机场无法使用，[推荐替代 – DOVE加速器](https://dove8.cc/a.php?asbcbO1PCgF)
 
 2025年1月，据EFCloud机场电报群EFCloud groud里的技术团队公告内容，EFCloud机场的技术团队已经和机场主失联一段时间，随着服务器的陆续到期，技术人员已经无法维护服务器的正常运营，所以只能选关闭EFCloud机场的服务将用户转移。
 
